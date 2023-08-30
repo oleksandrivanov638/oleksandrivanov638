@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @oleksandrivanov638
 - 👀 I’m interested in ...754
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...568548564re y gre
+- 💞️ I’m looking to collaborate on ...568548564re y greg se4gzesy5hg
 5728s423 erue6dfxsr tvlhjsg rtzdfgjh,hrt  he 5u6u6u65ueue6
 <!---
 oleksandrivanov638/oleksandrivanov638 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
